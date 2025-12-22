@@ -76,7 +76,7 @@ My work emphasizes:
 
 ## 📫 Contact
 - GitHub: https://github.com/rahulgithubral
-- LinkedIn: Rahul R S
+- LinkedIn: www.linkedin.com/in/rahulrsiitkgp
 
 ---
 
